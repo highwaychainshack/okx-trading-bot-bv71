@@ -1,4 +1,4 @@
-# 
+# Get the ultimate okx trading bot with automatic okx trading bot Addon | scalping + stop-loss. Featuring scalping and stop-loss, it's the best choice for automated trading.
 
 
 
